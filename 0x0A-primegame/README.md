@@ -1,1 +1,1 @@
-0 X 0A - Prime game
+0X0A - Prime Game
